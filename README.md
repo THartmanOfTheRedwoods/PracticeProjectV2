@@ -11,6 +11,8 @@ I'm tired of this grandpa
 
 Give up liberty for security and end up with neither! - Ben Franklin
 
+oh fat man my fat man
+
 The most merciful thing in the world, I think, is the inability of the human mind to correlate all its contents. We live on a placid island of ignorance in the midst of black seas of infinity, and it was not meant that we should voyage far. - HP Lovecraft
 
 Why are we still here, just to suffer? - Kaz Miller
