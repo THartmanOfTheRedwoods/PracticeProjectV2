@@ -1,5 +1,4 @@
 # PracticeProjectV2
 I collaborated correctly!
 
-### I am not ready for my quote!!!! 😱
-Oh wait...
+"When you're outnumbered! And the most advanced arsenal is at your disposal... Fighting fair, just isn't an option"
