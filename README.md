@@ -20,3 +20,5 @@ Why are we still here, just to suffer? - Kaz Miller
 
 "So do I," said Gandalf, "and so do all who live to see such times. But that is not for them to decide. All we have to decide is what to do with the time that is given us.”
 "Don't be evil" - google motto 2000-2018
+
+"When you're outnumbered! And the most advanced arsenal is at your disposal... Fighting fair, just isn't an option"
