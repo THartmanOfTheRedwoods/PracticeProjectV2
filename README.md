@@ -17,4 +17,6 @@ The most merciful thing in the world, I think, is the inability of the human min
 
 Why are we still here, just to suffer? - Kaz Miller
 “I used to think I was indecisive, but now I’m not too sure.” Charles Gary P Thompson
+
+"So do I," said Gandalf, "and so do all who live to see such times. But that is not for them to decide. All we have to decide is what to do with the time that is given us.”
 "Don't be evil" - google motto 2000-2018
